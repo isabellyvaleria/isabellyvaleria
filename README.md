@@ -15,3 +15,5 @@ You can click the Preview link to take a look at your changes.
 ![](https://media.tenor.com/-4B-umaVHjUAAAAM/its-me-dark-soul.gif)
 ![](https://media.tenor.com/gPJjJGIoobYAAAAC/anime-sad.gif)
 ![](https://media.tenor.com/CxMgJc45VtgAAAAM/anime-sad.gif)
+![](https://media.tenor.com/Cg1yKDtsoKEAAAAM/moon-glitching.gif)
+![](https://media.tenor.com/SZziL3NY__cAAAAM/life-death.gif)
